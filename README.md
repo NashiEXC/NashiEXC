@@ -1,6 +1,7 @@
 pretzels
 
-![dame-da-ne-guy-yakuza](https://github.com/user-attachments/assets/edc33a04-8ae8-49c5-a5cd-d6cd30964aa8)
+![ouch](https://github.com/user-attachments/assets/9d9cde5b-774c-496a-9085-bb3b323a5929)
+
 
 <!---
 NashiEXC/NashiEXC is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
