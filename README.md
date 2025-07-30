@@ -5,6 +5,7 @@ pretzels
 
 
 ![cat-bird](https://github.com/user-attachments/assets/b0257f17-e526-4e24-805c-2d1849ca04b1)
+![good-content-hello-neighbor](https://github.com/user-attachments/assets/be75b44e-abb5-4a42-bdd4-dd08ef2f446c)
 
 <!---
 NashiEXC/NashiEXC is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
